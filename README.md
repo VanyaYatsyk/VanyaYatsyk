@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @VanyaYatsyk
+- 👀 I’m interested in wood and CNC
+- 🌱 I’m currently learning 3d
+- 📫 How to reach me ... vanya.yatsyk@gmail.com
